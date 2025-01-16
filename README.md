@@ -20,8 +20,7 @@
 - Email: [francescamonicasala1@gmail.com](mailto:francescamonicasala1@gmail.com)
 - LinkedIn: [linkedin.com/in/francescamonicasala](https://www.linkedin.com/in/francescamonicasala/)
 
-### 😄 Pronouns: She/Her
 
 ### ⚡ Fun fact:
-I am fluent in four languages—English, German, French, and Romanian—and love leveraging this skill to collaborate with diverse global teams!
+I am fluent in four languages—English, German, French, and Romanian—and love leveraging this skill to collaborate with diverse global teams! I love surfing!!!
 
